@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @shubhammali929
-- 👀 I’m interested in coding and wedev
+- 👀 I’m interested in coding and web dev
 - 🌱 I’m currently persuing bachleors in computer science
 - 💞️ I’m looking to collaborate on my project which is web messenger
 - 📫 How to reach me instagram-> @___shubzzz__
