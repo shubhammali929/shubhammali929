@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding and web dev
 - 🌱 I’m currently persuing Masters in computer Application
 - 💞️ I’m looking to collaborate on my project which is web messenger
-- 📫 How to reach me instagram-> @___shubzzz__
+- 📫 How to reach me email-> shubhammali929@gmail.com
 - 🖐️ Check out my new portfolio --> shubhammali.tech
 
 <!---
