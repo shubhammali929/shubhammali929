@@ -25,7 +25,7 @@
 [![](https://visitcount.itsvg.in/api?id=shubhammali929&icon=0&color=0)](https://visitcount.itsvg.in)
 
   ## 💰 You can help me by Donating
-  [![BuyMeACoffee](https://wem-music.de/wp-content/uploads/2022/10/orange-button.png)](https://buymeacoffee.com/shubhammali) 
+  [![BuyMeACoffee](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQFZIfERFBiBvEJhQMM20aDUy5Le8AzAsyszb-9GBzFoLipZt112z90sJ6fuZtH8qxDXQ)](https://buymeacoffee.com/shubhammali) 
 
   
 <!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
